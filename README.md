@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **shirkerishabh10@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1IZTK_oJJA4p89J0r7wPI36dswGa2uKg-/view?usp=sharing](https://drive.google.com/file/d/1IZTK_oJJA4p89J0r7wPI36dswGa2uKg-/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1IZTK_oJJA4p89J0r7wPI36dswGa2uKg-/view?usp=sharing]([https://drive.google.com/file/d/1IZTK_oJJA4p89J0r7wPI36dswGa2uKg-/view?usp=sharing](https://drive.google.com/file/d/1Kup8qpKTi3qijuLLyX6rBV8lBJkfN_mD/view?usp=drive_link))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
